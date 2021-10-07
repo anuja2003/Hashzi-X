@@ -7,7 +7,7 @@
 
 </a>
 
-![logo](https://telegra.ph/file/492ecf8972eea2af1dda0.jpg)
+![logo](https://telegra.ph/akina-10-07)
 <h1 align="center"><b> 𝗔𝗠𝗔𝗭𝗢𝗡𝗘 𝗔𝗟𝗘𝗫𝗔 (ᴠɪᴘ) </b></h1>
 
 </a>
