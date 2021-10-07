@@ -8,7 +8,7 @@
 </a>
 
 ![logo](https://telegra.ph/file/e8f3e419b3dafe9fe8153.jpg)
-<h1 align="center"><b> 🧚𝗔𝗠𝗔𝗭𝗢𝗡𝗘 𝗔𝗟𝗘𝗫𝗔 (ᴠɪᴘ) </b></h1>
+<h1 align="center"><b> 🧚Aleesa (ᴠɪᴘ) </b></h1>
 
 </a>
              
