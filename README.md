@@ -7,7 +7,7 @@
 
 </a>
 
-![logo](https://telegra.ph/file/e8f3e419b3dafe9fe8153.jpg)
+![logo](https://telegra.ph/file/492ecf8972eea2af1dda0.jpg)
 <h1 align="center"><b> 🧚𝗔𝗠𝗔𝗭𝗢𝗡𝗘 𝗔𝗟𝗘𝗫𝗔 (ᴠɪᴘ) </b></h1>
 
 </a>
@@ -137,13 +137,13 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 
 [![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://https://youtu.be/mcEeIspWOpY)
 
- ***ᴄʜᴇᴛʜᴀɴᴀ_ʙʀᴏ(Teenuh-X😈)***
-<a href="https://Wa.me/+94766598862">
+ ***Anuja Supulsara***
+<a href="http://wa.me/94712289566">
     <img src="https://img.shields.io/badge/FindOn%20whatsapp-purple&style=plastic">
   
   </a>
 
-<a href="https://Wa.me/+14382551507">
+<a href="http://wa.me/94712289566">
     <img src="https://img.shields.io/badge/FindOn%20Whatsapp-purple&style=plastic">
   
   </a>
